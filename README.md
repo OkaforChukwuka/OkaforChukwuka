@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **okaforchukwuka530@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/home](https://drive.google.com/drive/home)
+- 📄 Know about my experiences [https://drive.google.com/drive/home](https://drive.google.com/file/d/12aB0lJLZ9_v0_MhKmwmCMaEX8-i3biZb/view?usp=sharing)
 
 - ⚡ Fun fact **I clean and prepare data**
 
